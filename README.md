@@ -1,2 +1,2 @@
 # galaxygab.lumio.io
-Fumio support url 
+if need of assistance email galaxygab21@gmail.com
